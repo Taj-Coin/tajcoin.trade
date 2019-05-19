@@ -1,4 +1,4 @@
-## TRADE LANACOIN
+### TRADE TAJCOIN
 
 # Tokens.net 
 
